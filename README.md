@@ -1,4 +1,5 @@
-### Hi there 👋
+study is so boring, joke =)
+
 
 <!--
 **lucasmo55/lucasmo55** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
